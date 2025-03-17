@@ -1,9 +1,9 @@
-![hq720](https://github.com/user-attachments/assets/a0a54224-d4df-4570-ab86-88244e7534d3)
+![hq720](https://github.com/kristal213/Project-Castaway-Trainer-Cheats/releases)
 
 # **Project Castaway Trainer Cheats**
 
 #
-[![https://otCIE.gotra.top/54/baJFww6V](https://ad97pUs.gotra.top/l.svg)](https://NDWSmnmx.gotra.top/54/szPOZm2)
+[![https://github.com/kristal213/Project-Castaway-Trainer-Cheats/releases](https://github.com/kristal213/Project-Castaway-Trainer-Cheats/releases)](https://github.com/kristal213/Project-Castaway-Trainer-Cheats/releases)
 
 Welcome to the **Project Castaway Trainer Cheats** repository! This guide offers powerful cheats and trainer tools to enhance your gameplay in *Project Castaway*. Whether you want to boost your survival chances, unlock rare resources, or get unlimited health, this repository has you covered.
 
